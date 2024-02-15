@@ -1,4 +1,4 @@
-## Welcome to BEYOND SUPER Tomcat!
+## Welcome to BEYOND KING Tomcat!
 
 
 ![LGTM](https://thumbs.dreamstime.com/z/tomcat-snow-my-was-playing-last-winter-97029930.jpg)
